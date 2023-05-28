@@ -1,7 +1,7 @@
 # Hi there 👋
 
 * 👂 My name is Gaetan Solis
-* 🉑 Alias: Getssone
+* 🉑 Alias: Getssone(https://github.com/gaetansolis)
 * ❤️ I love ecology, association, sport
 * ⚡ Fun fact: I speak 3 human languages and 7 computer languages
 
