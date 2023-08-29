@@ -2,7 +2,7 @@
 
 * 👂 My name is Gaetan Solis
 * 🉑 Alias: [Getssone](https://github.com/gaetansolis)
-* ❤️ I love ecology, association, sport
+* ❤️ I love ecology & biomimicry, association, sport
 * ⚡ Fun fact: I speak 3 human languages and 7 computer languages
 * I like talk about 🌍**altruisme efficace**🌍, 🍃**biomimicry**🍃; 💡**innovation**💡.
 
